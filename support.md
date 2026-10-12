@@ -8,4 +8,6 @@ Contact: support@trymainquest.com
 
 ## Bahasa Indonesia
 
-Kontak: support@trymainquest.com
+Contact: support@trymainquest.com
+
+Hubungi alamat tersebut jika perlu bantuan menggunakan Main Quest.
